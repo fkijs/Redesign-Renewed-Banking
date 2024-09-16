@@ -10,4 +10,6 @@ That’s it! You’re good to go!
 
 Remember to follow us in our store for more exciting releases.
 
+Discord official: https://discord.gg/bYbeXZtTa9
+
 Please note: We do not provide support for design customizations.
