@@ -13,3 +13,9 @@ Remember to follow us in our store for more exciting releases.
 Discord official: https://discord.gg/bYbeXZtTa9
 
 Please note: We do not provide support for design customizations.
+
+
+-------------- previews ----------------------
+
+Video: https://streamable.com/wvuamb
+images: https://ibb.co/6Dr6H52
